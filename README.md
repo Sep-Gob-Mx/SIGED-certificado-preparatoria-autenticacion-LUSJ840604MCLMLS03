@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LUSJ840604MCLMLS03
+LUSJ840604MCLMLS03
